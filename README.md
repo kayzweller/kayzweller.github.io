@@ -1,2 +1,0 @@
-# kayzweller.github.io
-//MyPersonalPages
